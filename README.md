@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning MCA
 - 💞️ I’m looking to collaborate on JAVASCRIPT
 - 📫 How to reach me charlespro504@gmail.com
-- 😄 Pronouns: Innocent
+- 😄 Pronouns: SMART WORK 
 - ⚡ More Details: Explore the pages
 
 <!---
